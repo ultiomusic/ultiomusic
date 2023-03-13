@@ -1,15 +1,5 @@
-Söylenmedi hiç
+Orda! iyilerin yanında! her şeyden uzakta!
 
-Sana layık düşler benden önce
+Olduğunu bilmek yeterdi aslında...
 
-Tutsak yüreğim
-
-Biliyorsun sen de ince ince
-
-Yangın yeri hep
-
-Buralar sayende, yok şikâyet
-
-Gel bir sarayım
-
-Aşkın olayım
+Beni duyuyorsan gel gir rüyalarıma...
