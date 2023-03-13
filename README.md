@@ -1,15 +1,7 @@
-Söylenmedi hiç
+Söylenmedi hiç                               Yangın yeri hep
 
-Sana layık düşler benden önce
+Sana layık düşler benden önce                Buralar sayende, yok şikâyet
 
-Tutsak yüreğim
+Tutsak yüreğim                               Gel bir sarayım
 
-Biliyorsun sen de ince ince
-
-Yangın yeri hep
-
-Buralar sayende, yok şikâyet
-
-Gel bir sarayım
-
-Aşkın olayım
+Biliyorsun sen de ince ince                  Aşkın olayım
