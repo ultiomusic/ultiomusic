@@ -1,6 +1,9 @@
 İnsan yalnız doğar da yalnız ölmezmiş, n'aber?
+
 Bizden uzak olsun keder
+
 Sormana hiç gerek yok, yanmışım, tarifi zor
+
 Söylerim günde bin kere
 
 Yüzün gülünce güneş doğar ya
