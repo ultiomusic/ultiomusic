@@ -1,6 +1,1 @@
-Orda! iyilerin yanında! her şeyden uzakta!
-
-Olduğunu bilmek yeterdi aslında...
-
-Beni duyuyorsan gel gir rüyalarıma...
 <img src="https://media.giphy.com/media/bqSkJ4IwNcoZG/giphy.gif" width="480" height="246" />
