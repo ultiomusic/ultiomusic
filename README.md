@@ -2,7 +2,7 @@
 <a href="https://github.com/ultiomusic"><img src="https://badge42.vercel.app/api/v2/cldtdzadh00110fl54xslmkzl/stats?cursusId=21&coalitionId=227" alt="beeligul's 42 stats" /></a>
 <br>
 <div>
-<h2>Libft</h2>
+<p>Libft</p>
 <a href="https://github.com/ultiomusic/42Cursus-Libft%22%3E<img src="https://badge42.vercel.app/api/v2/cldtdzadh00110fl54xslmkzl/project/2905508" alt="beeligul's 42 Libft Score" /></a>
 </div>
 <br>
