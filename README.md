@@ -11,4 +11,4 @@
 <a href="https://github.com/ultiomusic"><img src="https://badge42.vercel.app/api/v2/cldtdzadh00110fl54xslmkzl/project/3024411" alt="beeligul's 42 get_next_line Score" /></a>
 <br>
 <a href="https://github.com/ultiomusic"><img src="https://badge42.vercel.app/api/v2/cldtdzadh00110fl54xslmkzl/project/3024411" alt="beeligul's 42 get_next_line Score" /></a>
-<p align="center"><a href="https://spotify-github-profile.vercel.app/api/view?uid=sx1ygjfidpkfcjntazewo9wdd&amp;redirect=true"><img src="https://spotify-github-profile.vercel.app/api/view?uid=sx1ygjfidpkfcjntazewo9wdd&amp;cover_image=true&amp;theme=default&amp;show_offline=false&amp;background_color=121212" alt="spotify-github-profile"></a></p>
+<p align="center"><a href="https://spotify-github-profile.vercel.app/api/view?uid=15sLA8fe8GkNYpE0rkK1Wb?si=97db5c7b11cf4a61=true"><img src="https://spotify-github-profile.vercel.app/api/view?uid=sx1ygjfidpkfcjntazewo9wdd&amp;cover_image=true&amp;theme=default&amp;show_offline=false&amp;background_color=121212" alt="spotify-github-profile"></a></p>
