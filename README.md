@@ -1,1 +1,1 @@
-https://github.com/user-attachments/assets/d25829ea-f606-4f43-b7a4-753e744188ce
+![zero-drakengard](https://github.com/user-attachments/assets/755e4c32-44df-4bfe-973a-686faf76e714)
